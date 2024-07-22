@@ -11,3 +11,11 @@ For further information and updates, you can explore our helpful links to catego
 
 Thank you for choosing Physics Travel Bandung. We are excited to make your visit to Bandung exceptional and unforgettable!
 
+
+
+OUR TEAM
+1. Anisa Fitriani
+2. Halwa Anisa Zaitun
+3. Iin Inayah
+4. Fazira aflahunnisa wigena
+5. Nyai Ratu Syahira
